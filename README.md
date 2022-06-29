@@ -4,4 +4,4 @@
 - 👀 Eu estou interessado em aprender a programar novas linguagens.
 - 🌱 Eu estou aprendedo a programar recentimente a linguagem de JavaScript e Scratch 💞️📫 
 Sou aluna de pensamento computasional
-Estudo no primeiro ano do ensino meédio
+Estudo no primeiro ano do ensino médio
